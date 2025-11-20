@@ -15,6 +15,6 @@ We welcome developers, artists, writers, and enthusiasts to contribute to the de
 
 - [Learn More](https://dimm.city)
 - [Join our subreddit](https://www.reddit.com/r/DimmCityRPG/)
-- [Sign Up for our Presale](https://presale.dimm.city)
+- [Check out our kickstarter!](https://dimm.city)
 
 Together, we can make this CreaturePunk dream a reality.
